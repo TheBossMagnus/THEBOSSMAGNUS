@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @THEBOSSMAGNUS
-- 🌱 I’m currently learning javascript
+- 🌱 I’m currently learning how be smarter
 - 💞️ I’m looking to collaborate on Things
 - 📫 How to reach me THEBOSSMAGNUS#6606 or @THEBOSSMAGNUS
 
