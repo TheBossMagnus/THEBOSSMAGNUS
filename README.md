@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @THEBOSSMAGNUS
 - 🌱 I’m currently learning javascript
-- 💞️ I’m looking to collaborate on Files
+- 💞️ I’m looking to collaborate on Things
 - 📫 How to reach me THEBOSSMAGNUS#6606 or @THEBOSSMAGNUS
 
 <!---
