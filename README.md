@@ -6,7 +6,7 @@
 
 ## Contacts:
 
-Discord: THEBOSSMAGNUS#6606                                    
+Discord: TheBossMagnus#6606                                    
 Telegram: @THEBOSSMAGNUS
 
 <!---
